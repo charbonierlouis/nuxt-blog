@@ -2,8 +2,6 @@
 title: "Les bases du pilotage en karting : conseils pour débutants"
 ---
 
-# Les bases du pilotage en karting : conseils pour débutants
-
 Le karting est un sport automobile accessible à tous, mais pour bien débuter et progresser rapidement, il est essentiel de comprendre certaines bases du pilotage. Voici quelques conseils pour optimiser votre conduite et prendre du plaisir sur la piste !
 
 ## 1. Adopter la bonne position
